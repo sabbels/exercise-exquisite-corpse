@@ -19,3 +19,11 @@ Affairés dans la cour du loup, l'improbable troupe ne se rendit pas compte que 
 Le loup les observait
 
 Pris de panique, il décida de riposter !
+Mais alors que les cochons savouraient leur victoire, une ombre gigantesque se dessina à l'horizon. 
+
+Un *Titan porcin*, plus grand que tous les autres, apparut, laissant les cochons stupéfaits.
+
+Leur véritable bataille ne faisait que commencer.
+
+
+
