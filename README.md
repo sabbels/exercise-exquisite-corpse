@@ -7,3 +7,10 @@ Les trois petits cochons sont *fâchés*.
 Quand la pleine lune est arrivée, ils ont décidé de se **venger** du loup.
 
 Le loup, malade d'avoir trop mangé, n'a rien vu arriver.
+
+Armés jusqu'aux dents les cochons ont envahi la propriété du Loup.
+
+Quelle ne fut pas leur surprise quand ils se retrouverent nez avec nez avec le petit chaperon rouge.
+
+Celui ci était à la recherche de sa grand-mère, ils décidèrent alors de la chercher ensemble. 
+
