@@ -14,3 +14,8 @@ Quelle ne fut pas leur surprise quand ils se retrouverent nez avec nez avec le p
 
 Celui ci était à la recherche de sa grand-mère, ils décidèrent alors de la chercher ensemble. 
 
+Affairés dans la cour du loup, l'improbable troupe ne se rendit pas compte que derrière ses rideaux,
+
+Le loup les observait
+
+Pris de panique, il décida de riposter !
