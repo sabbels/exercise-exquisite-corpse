@@ -27,3 +27,12 @@ Mais les cochons n'ont pas dit leurs derniers mots...
 ils ont essayé de rappeler aux loups que leur grand-père avait disparu en faisant des courses, les loups ont été déstabilisé par la nouvelle, les cochons attaquaient de manière directe et ont gagnés la guerre et pour feter ça ils ont pris, mangé et bu tout ce qui restait des opposants.
 
 En effet, on aurait aimé une meilleur fin...
+Pris de panique, il décida de riposter !
+Mais alors que les cochons savouraient leur victoire, une ombre gigantesque se dessina à l'horizon. 
+
+Un *Titan porcin*, plus grand que tous les autres, apparut, laissant les cochons stupéfaits.
+
+Leur véritable bataille ne faisait que commencer.
+
+
+
